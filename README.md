@@ -19,5 +19,5 @@
 2 of Clubs<br/> 
 1 Joker<br/> 
 <br/> 
-Art by minime453
+Art by minime453<br/> 
 https://www.artstation.com/treyramm
